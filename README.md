@@ -1,4 +1,4 @@
-🔭 I am currently studying at Akdeniz University<br>
+🔭 I am currently studying at Akdeniz University 1/4<br>
 
 
 ## 🌐 Socials:
